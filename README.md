@@ -1,1 +1,1 @@
-# AlexandriaCooney.github.io
+Alexandria Cooney atcooney@my.waketech.edu, This is my Wake Tech Account, This repository will hold assignments
